@@ -1,0 +1,1 @@
+# AJBell-equity-research-project
